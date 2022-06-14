@@ -1,2 +1,2 @@
 # NSLobang
-  >w<
+> >w<
